@@ -1,1 +1,1 @@
-# ROM-projekt
+# ROM projekt - Revščina v Sloveniji
